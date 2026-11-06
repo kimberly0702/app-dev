@@ -18,15 +18,14 @@ A group of people end up stuck in a strange town and no matter which road they t
 - **Boyd Stevens** (Harold Perrineau) is the sheriff and the leader of the town
 - **Tabitha Matthews** (Catalina Sandino Moreno)
 - **Jim Matthews** (Eion Bailey)
-
+  
 ## Why I Like It
 1. It's really suspenseful and I can't stop watching.
 2. Every episode gives you new questions.
 3. There are a lot of clues, like the **Bottle Trees** and the **Boy in White**, so I always try to guess what they mean.
-
+   
 ## My Thoughts
 - The creepy mood of the town
 - How the characters help each other to survive
 - The mystery that keeps getting bigger
-
-> For me, the scariest part of the show is the town itself.
+- For me, the scariest part of the show is the town itself.
